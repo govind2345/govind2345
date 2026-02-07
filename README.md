@@ -1,7 +1,7 @@
 Hi there 👋
 
 - 🔭 I’m currently working on myself.
-- 🌱 I’m currently learning how to cope up with my failures.
+- 🌱 I’m currently learning how to cope with my failures.
 - 💬 Ask me about anything.
 - 📫 How to reach me: Given are my profiles.
 - ⚡ Fun fact: Tell you later!!!!!
